@@ -24,7 +24,7 @@ I named my Pegasus **Lushiel** in Black Desert Online! 🐎✨
 I’m currently designing a platformer on Roblox Studio. Stay tuned! 🎨🛠️  
 
 ## 🔗 Let’s Connect  
-[[LinkedIn Profile Coming Soon] ](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile) 
+[[LinkedIn Profile] ](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile) 
 
 ---
 
